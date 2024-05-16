@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Pandora !!
+- 👀 I’m interested in anything to everything !!
+- 🌱 I’m currently learning !!
+- 💞️ I’m looking to collaborate on some stuff !!
+- 📫 How to reach me I do not know !!
+- 😄 Pronouns: thing/things
+- ⚡ Fun fact: still thinking about it...
